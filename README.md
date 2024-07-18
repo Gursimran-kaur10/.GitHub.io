@@ -143,7 +143,19 @@ It is a process of seeing the reality on our own right,by our own investigation 
 # DAY-3 
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
-| 15 July 2024 |Dr.Pyare Lal||
+| 15 July 2024 |Dr.Pyare Lal|Motivation|
+
+# Sir motivated students to focus on goal not on what other say.
+
+• Everything has changed in today's world except human behaviour.                  
+•No one wants to let others underestimate his or her capabilities.                          
+•He also shares life stories with students.                                                    
+•He told us to be Be punctual, Be confident.                                       
+•Strengthen your inner power, you will automatically be able to face outer world powers.                    
+•Taunts are part of life, we should always focus towards our goal.                              
+•Change in the state is the law of nature as when new bonds form, old bonds break.
+•Don't cry over what happened, think of what can be done.                                         
+•He motivated us saying that "Forget if or else, just focus on your journey".
 
 
 

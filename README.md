@@ -161,7 +161,28 @@ Date | Resource person | Description |
 | ----- | ------------- | ------------ |
 | 15 July 2024 |Mr. Sony Goyal |Motivation (1,2 ka 4)|
 
+# Sir, guided us by presenting a formula 1,2 ka 4 :-
+•He said that Everyday is Happy Birthday of a person, learn something new.                                                 
+• Formula 1,2 ka 4 teachs us to Give our 100%.                                          
+• We should Do one task at a time.                                                 
 
+<mark> •Things to do in 4 years of life at GNDEC @BTech:- </mark>
+
+1. Learn
+2. Inquire                                                      
+3. Future
+4. Explore                           
+
+• Ask silly questions, see some part of the topic in discussion before coming to lecture.                        
+•Triangle has high compatibility as it can be connected to many other triangles but it has low efficiency                
+•While a hexagon has high compatibility as well as high efficiency.                          
+•Do not mix passion with profession.                                                
+• It is not necessary to make your passion your profession.                      
+•Components of future are: Scope, Evaluation and Awareness (SEA).                  
+
+Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 15 July 2024 | ||
 
 
   

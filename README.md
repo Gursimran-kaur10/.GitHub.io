@@ -65,7 +65,20 @@ Later Sir, told us about different types of Scholarships :-
  - Merit Cum Means Scholarship
  - Pragrati Scholarship Scheme for girl students
  - Sikh Human Development Federation Scholarship                        
- - ONGC scholarship 
+ - ONGC scholarship
 
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 11 July 2024 | Dr. HS Rai |About Web Development |
+
+# Sir Dr. HS Rai is the controller of examination i.e. CoE
+
+ • Firstly Sir introduce about the concept of <mark> DRY </mark> (Do not Repeat Yourself).       
+ • He also motivated the students to enhance their skills and to work hard.       
+ • He told students about the courses in <mark>Power searching with Google</mark>.                  
+ • And  different search engines such as <mark>Duckduck go </mark>.                              
+ • He also introduce website <mark> Github.com </mark> to create repositories .                       
+ • At last, he mentioned his Telegram group named <mark> CodeGNE </mark> which is one of significant projects to help beginners in learning programming 
+ 
 
    

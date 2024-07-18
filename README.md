@@ -157,6 +157,11 @@ It is a process of seeing the reality on our own right,by our own investigation 
 •Don't cry over what happened, think of what can be done.                                         
 •He motivated us saying that "Forget if or else, just focus on your journey".
 
+Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 15 July 2024 |Mr. Sony Goyal |Motivation (1,2 ka 4)|
+
+
 
 
   

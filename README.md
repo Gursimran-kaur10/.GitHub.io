@@ -45,4 +45,27 @@ Later, Sir tells us about the different <mark> Types of membership :- </mark>.
 
 At the end, Sir described <mark>3P's of success</mark> - Passion, Persistence, Patience 
 
+
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 11 July 2024 | Dr.Parminder singh| Facilities available in college  |
+# Sir conducted an informative session to introduce new session students with various facilities provided by college such as:-
+
+• There is a library having about 93453 books , also having E-books.                                         
+• There are about 17 sports grounds for different types of games.                                             
+• The college have 3 Hostels, 2 for boys and 1 for girls.                                     
+• There is NCC (National Cadet Corps) having army and air wing.                 
+• There is also NSS (National Service Scheme) to conduct activities such as blood donation, planting trees etc.
+
+Later Sir, told us about different types of Scholarships :-
+ - GNDEC Alumni Scholarship               
+ - UG Scholarship
+ - Post Matric Scholarship
+ - Merit Cum Means Scholarship
+ - Pragrati Scholarship Scheme for girl students
+ - Sikh Human Development Federation Scholarship                        
+ - ONGC scholarship 
+
+
    

@@ -1,6 +1,6 @@
 # Gursimran-kaur10.GitHub.io
 # Activity Report of Student Induction programme 2024
-# DAY-1 
+# <mark> DAY-1 </mark>
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
 | 11 July 2024 | Dr. Arvind Dhingra | STEP - Systematic Training and Education Programme |
@@ -79,6 +79,56 @@ Later Sir, told us about different types of Scholarships :-
  • And  different search engines such as <mark>Duckduck go </mark>.                              
  • He also introduce website <mark> Github.com </mark> to create repositories .                       
  • At last, he mentioned his Telegram group named <mark> CodeGNE </mark> which is one of significant projects to help beginners in learning programming 
+
+ # <mark> DAY-2 </mark>
+ | Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 12 July 2024 | Prof. Nisha|UHV (Universal Human Values) |
+
+ # Mam, introduced us about the Value Education 
+ Starting with the introduction of the students, Mam started the class telling us about the need of value education .                                                                             
+ For human being there are two important questions:-                                         
+    • What is my aspiration ?                                          
+    • How to fulfill my aspiration?                                                
+                                                                                    
+ Human being mainly have two desires?
+           - Happiness.            - Prosperity 
+
+ <mark> Guidelines for Value Education </mark>
+      •Universal                                                      
+      •Rational.                                                   
+      •Natural and verifiable                                          
+      •All Encompassing                                       
+      •Harmony
+
+  <mark> Basic Requirements for fulfillment of Human Aspiration </mark>.                       
+  For human being physical facility is necessary but relationship is also necessary.                                                               • For animals, physical facility is necessary as well as adequate.
+          • For human being, physical facility is necessary but physical facility alone is not adequate.          
+    
+-Therefore in conclusion for fulfillment of human being- physical facility, relationship and right understanding all three are necessary.                                                                                                      
+
+   <mark> Role of Education Sanskar </mark>
+   •for holistic development and right understanding.                   
+   •Capacity to live in relationship with other human being.                                 
+   •Capacity to understand Physical facility needs.                                                  
+   •Comitment to live with right understanding.                                                  
+
+<mark> What is self exploration</mark>.                                    
+It is a process of seeing the reality on our own right,by our own investigation and observation 
+      Happiness is the state of Harmony.                                                      
+      Unhappiness is to be forced to be in state of contradiction.                                
+
+  At last mam told us about the Meaning of Harmony and Prosperity .                                                                               
+
+  
+   
+ 
+      
+ 
+   
+    
+
+ 
  
 
    

@@ -102,7 +102,7 @@ Later Sir, told us about different types of Scholarships :-
       •Harmony
 
   <mark> Basic Requirements for fulfillment of Human Aspiration </mark>.                       
-  For human being physical facility is necessary but relationship is also necessary.                                                                                         • For animals, physical facility is necessary as well as adequate.               
+  For human being physical facility is necessary but relationship is also necessary.                                                             • For animals, physical facility is necessary as well as adequate.               
           • For human being, physical facility is necessary but physical facility alone is not adequate.          
     
 -Therefore in conclusion for fulfillment of human being- physical facility, relationship and right understanding all three are necessary.                                                                                                      
@@ -118,7 +118,31 @@ It is a process of seeing the reality on our own right,by our own investigation 
       Happiness is the state of Harmony.                                                      
       Unhappiness is to be forced to be in state of contradiction.                                
 
-  At last mam told us about the Meaning of Harmony and Prosperity .                                                                               
+  At last mam told us about the Meaning of Harmony and Prosperity . 
+
+  | Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 12 July 2024 |seniors of 2nd and 3rd year |About Canva|
+
+# Canva is used to create Designs and publish them anywhere.
+•Why only Canva?                                                             
+      -It is easily available on mobile phones.                                      
+      -It is available free of cost.                                   
+      -It has thousands of templates available freely.                                
+• After introducing Canva they asked us to practice canva along with them.
+• There were different types of options available to create fully decorative templates such as:-             
+       - Elements                                        
+       - Background colour                                   
+       - Colour palette                                   
+       - Font: Font size , Font color etc.                              
+       - Animation 
+• After that they also told us how to generate QR code in Canva itself.              
+• We can also make money by freelancing by designing graphic in Canva
+• No experience is required to use Canva
+ 
+
+
+
 
   
    

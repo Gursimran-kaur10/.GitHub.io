@@ -128,19 +128,22 @@ It is a process of seeing the reality on our own right,by our own investigation 
 •Why only Canva?                                                             
       -It is easily available on mobile phones.                                      
       -It is available free of cost.                                   
-      -It has thousands of templates available freely.                                
-• After introducing Canva they asked us to practice canva along with them.
+      -It has thousands of templates available freely.                                                             
+• After introducing Canva they asked us to practice canva along with them.                                             
 • There were different types of options available to create fully decorative templates such as:-             
        - Elements                                        
        - Background colour                                   
        - Colour palette                                   
        - Font: Font size , Font color etc.                              
-       - Animation 
+       - Animation                                                    
 • After that they also told us how to generate QR code in Canva itself.              
-• We can also make money by freelancing by designing graphic in Canva
-• No experience is required to use Canva
+• We can also make money by freelancing by designing graphic in Canva.                   
+• No experience is required to use Canva.                                        
  
-
+# DAY-3 
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 15 July 2024 |Dr.Pyare Lal||
 
 
 

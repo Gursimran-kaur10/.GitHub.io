@@ -140,7 +140,7 @@ It is a process of seeing the reality on our own right,by our own investigation 
 • We can also make money by freelancing by designing graphic in Canva.                   
 • No experience is required to use Canva.                                        
  
-# DAY-3 
+# <mark> DAY-3 </mark>
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
 | 15 July 2024 |Dr.Pyare Lal|Motivation|
@@ -182,9 +182,28 @@ Date | Resource person | Description |
 
 Date | Resource person | Description |
 | ----- | ------------- | ------------ |
-| 15 July 2024 | ||
+| 15 July 2024 | Mr. Pancham |About Body language|
 
+# Mr. Pancham is a student of fourth year Mechanical Engineering.                         
 
+• My Body language we can come to know about one's attitude.                         
+• It is being observed that Human beings communicate 7% by words.                
+• 55% by body movements.                                              
+• 38% by voice tone, modulation, pauses.                                  
+•If someone's feet are towards you while talking, he is an introvert.                            
+•If someone's posture is cross legged while talking, then he is defensive.
+• If the feet are outward while talking, then he an extrovert.                                
+• Our eyes play an important role to know whether our smile is real or fake.                                              
+•Then Mr. Pancham told us about his peronal achievemnts in the competition organised by SAE.                                     
+• He encouraged us to be a part of his team.                                                   
+•He also told us about the various tracks of madhya pradesh where they tested their own vehicle.                        
+•He then told us about the public attention they got after winning in the competition .   
+
+# <mark> DAY-4 </mark>
+
+Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 16 July 2024 | |About Faculty and Departmental visit|
   
    
  

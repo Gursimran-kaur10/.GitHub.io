@@ -102,7 +102,7 @@ Later Sir, told us about different types of Scholarships :-
       •Harmony
 
   <mark> Basic Requirements for fulfillment of Human Aspiration </mark>.                       
-  For human being physical facility is necessary but relationship is also necessary.                                                               • For animals, physical facility is necessary as well as adequate.
+  For human being physical facility is necessary but relationship is also necessary.                                                                                         • For animals, physical facility is necessary as well as adequate.               
           • For human being, physical facility is necessary but physical facility alone is not adequate.          
     
 -Therefore in conclusion for fulfillment of human being- physical facility, relationship and right understanding all three are necessary.                                                                                                      
@@ -114,7 +114,7 @@ Later Sir, told us about different types of Scholarships :-
    •Comitment to live with right understanding.                                                  
 
 <mark> What is self exploration</mark>.                                    
-It is a process of seeing the reality on our own right,by our own investigation and observation 
+It is a process of seeing the reality on our own right,by our own investigation and observation                                        
       Happiness is the state of Harmony.                                                      
       Unhappiness is to be forced to be in state of contradiction.                                
 

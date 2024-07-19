@@ -230,23 +230,57 @@ Date | Resource person | Description |
 | ----- | ------------- | ------------ |
 | 17 July 2024 | Prof. Nisha |UHV (Universal Human Value) |
 
+1. Relationship is a thing between one self and other self.                                              
+2. From family onwards, we acquire relationships between one person and another.                    
+3. After home, we build (not acquire) relationships with society.
+4. Imagination sources:-                           
+       × Pre-conditioning.                     
+       × Sensation                         
+       × Natural Acceptance                                                        
+5.To develop a good relationship, we need to know about feelings.                                                    
+6.There are 9 types of feelings:-                                                       
+•Trust                   
+•Respect                         
+•Affection                         
+•Care                        
+•Guidance                      
+•Reverence               
+•Glory                  
+•Gratitude                 
+•Love                  
 
-
-
+7. Four important aspects of Relationship:-                  
+   •Relationship is between one self and other being.             
+   •There are feelings in relationship.
+   •These feelings can be recognised .
+   •Tge fulfillment of these feelings and right evaluation.
+            
 
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
 | 17 July 2024 |Seniors of 2nd and 3rd Year|About College Website |
 
+# About gndec website
 
+1. Go to www.gndec.ac.in.                                  
+2. They told us every single point of website.                        
+3. How to check updated notice.                                               
+4. They also told us about how to get the documents and result on website.
+5. Also about checking of results.
+They told us about theory subjects and SGP system.                                       
 
+# Examination Structure 
+• Internal paper is of 40 marks total which include:-
+                -Assignment= 10 marks               
+                -Attendancde= 6 marks                 
+                -MSE1=24 marks              
+                -MSE2=24 marks                            
 
-
-
+• External is of 60 marks
+•They also told us how to calculate SGP
 
 
 # <mark> DAY-6 </mark>
-
 
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
@@ -260,7 +294,7 @@ Date | Resource person | Description |
 
 
 | Date | Resource person | Description |
-| ----- | ------------- | ------------ |
+| --- | ------------- | ------------ |
 | 18 July 2024 |Prof.Nisha | |
 
 

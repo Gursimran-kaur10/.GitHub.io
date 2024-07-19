@@ -205,9 +205,24 @@ Date | Resource person | Description |
 | ----- | ------------- | ------------ |
 | 16 July 2024 | |About Faculty and Departmental visit|
   
-   
+# Teachers introducted us the Department of Information Technology.                                
  
-      
+1. Labs available in the department:- High Performance and Communication Labs (HPC), Project Labs (PL), Operating system labs (OS), Databse Management Systems lab (DBMS), Hardware Labs (HL) .                                                               
+2. Faculty offices, HOD offices, students section.                                                    
+3. ITian club.                                                                   
+        -Secretary of ITian club- Harsh kapoor(3rd year).                                         
+        -HR-Harmanpreet.                                                                            
+        -Event management head-Avyln
+        -Database Head-Anu
+        -Convener-Khushkaran
+        -Discipline head-Ashish
+        -Content writing head-Natasha
+        -Technical head-Ankush
+        -Co-convener-Abhishek
+
+4. For Training and placement cell- Sachin Bagga sir
+5. HOD ( Head of Department) - k.S. Maan Sir
+6. At the end the major recruiters who come to GNDEC were listed down like:- Microsoft, amazon, google etc.
  
    
     

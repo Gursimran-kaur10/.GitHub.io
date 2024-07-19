@@ -222,10 +222,93 @@ Date | Resource person | Description |
 
 4. For Training and placement cell- Sachin Bagga sir
 5. HOD ( Head of Department) - k.S. Maan Sir
-6. At the end the major recruiters who come to GNDEC were listed down like:- Microsoft, amazon, google etc.
- 
-   
+6. At the end the major recruiters who come to GNDEC were listed down like:- Microsoft, amazon, google etc. 
     
+# <mark> DAY-5 </mark>
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 17 July 2024 | Prof. Nisha |UHV (Universal Human Value) |
+
+
+
+
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 17 July 2024 |Seniors of 2nd and 3rd Year|About College Website |
+
+
+
+
+
+
+
+
+# <mark> DAY-6 </mark>
+
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 18 July 2024 |Dr. Harpal Singh| |
+
+
+
+
+
+
+
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 18 July 2024 |Prof.Nisha | |
+
+
+
+
+
+
+
+
+
+
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 18 July 2024 ||About NCC (National Cadiet Corps) |
+
+
+
+
+
+
+
+
+
+
+
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 18 July 2024 | |About NSS (National Service Scheme)|
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# <mark> DAY-7 </mark>
+
+
 
  
  

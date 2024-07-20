@@ -306,8 +306,42 @@ They told us about theory subjects and SGP system.
 
 | Date | Resource person | Description |
 | --- | ------------- | ------------ |
-| 18 July 2024 |Prof.Nisha | |
+| 18 July 2024 |Prof.Nisha | UHV (Universal Human Values) |
 
+# Understanding the Harmony in Society :-                               
+
+<mark> Motive :- </mark>  
+• Right Understanding                 
+• Fearless in Society                  
+• Coexistence   
+
+<mark> Five system of Human Society :- </mark>.           
+• Education Sanskar.              
+• Health self regulation.                 
+• Production Work.            
+• Justice Preservation.                  
+• Exchange or storage.                        
+
+
+
+
+
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 18 July 2024 | Dr. Harwinder Singh |About NCC (National Cadiet Corps) |
+
+• Firstly Dr. Harvinder Singh made us knew why we should opt NCC.          
+• He described about co-curricular and extra curricular activities.          
+• He listed down the physical as well as mental benefits of NCC.      
+• He listed down SAHARA scholarship and its benefits to NCC cadets.             
+• Many other govt. schemes and the cost bearing by govt. for any camp, uniform, drills etc.
+• He also explained all the life skills provided by World Health Organisation (WHO) like self awareness, maintaining relationships     • At end, Sir also cleared the doubts of students.                         
+
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 18 July 2024 |Er. Jasvir singh Grewal|About NSS (National Service Scheme) |
 
 
 
@@ -320,51 +354,36 @@ They told us about theory subjects and SGP system.
 
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
-| 18 July 2024 ||About NCC (National Cadiet Corps) |
+| 18 July 2024 |Er.Kanwardeep Kalra | Campus to corporate |
 
-Firstly Dr. Harvinder Singh made us knew why we should opt foor NCC
-
-He described about co-curricular and extra curricular activities
-
-He listed down the physical as well as mental benefits of NCC
-
-He listed down SAHARA scholarship and its benefits to NCC cadets
-
-TOPIC
-
-NCC and NSS
-
-Many other govt. schemes and the cost bearing by govt. for any camp, uniform, drills etc.
-
-were also discussed briefly
-
-He also confronted those students who did not qualify the NDA exam and said that NCC
-
-provides them a second chance to make their dream of becoming an officer in the indian
-
-armed forces a reality He also explained all the life skills provided by World Health Organisation (WHO) like self
-
-awareness, maintaining relationships etc
-
-• He said that besides position in armed forces, NCC also provides these life skills
-
-
-
-
-
-
-
-
-
-
-| Date | Resource person | Description |
-| ----- | ------------- | ------------ |
-| 18 July 2024 | |About NSS (National Service Scheme)|
-
-
-
-
-
+# Building a Future Beyond the Classroom.          
+• <mark> Transition </mark> : Campus to Corporate.            
+• Mam explained why,who,,what,when,where and how transition is important.           
+• It's all about C :-              
+     × Childhood           
+     × Campus            
+     × College              
+     × Corporate         
+     × Career         
+     × Compensation    
+• Another C is <mark> Challenge</mark>
+    which include Competition, Career , Communication, Commitment, Career obstacles.           
+• <mark> Bridging the Gap </mark> (Overcoming C's ).                   
+• Mam explained the difference between Soft skills and Hard skills.               
+•<mark> What are Soft skills </mark> :- Basic traits what makes you different.    
+•<mark> Essential Soft Skills for Students:- </mark>.              
+   × Goal setting        
+   × Email writing           
+   × Time management        
+   × Teamwork
+   × Confidence Building        
+   × Public Speaking         
+   × Apperance.        
+• <mark> ABC of First Impression:- </mark>.          
+       -Apperance         
+       -Behaviour         
+       -Communication      
+• Change is good but it's Never easy
 
 
 
@@ -377,7 +396,11 @@ awareness, maintaining relationships etc
 
 # <mark> DAY-7 </mark>
 
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 20 July 2024 |Respected Jaswinder Singh|About Mathematics and Science |
 
+# Starting with the meaning of Sat sri Akaal.
 
  
  

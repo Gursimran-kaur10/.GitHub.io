@@ -286,7 +286,18 @@ They told us about theory subjects and SGP system.
 | ----- | ------------- | ------------ |
 | 18 July 2024 |Dr. Harpal Singh| |
 
-
+# Dr. Harpal Singh Pannu is an excellent reciter of numeruos short stories related to sikh history.                       
+• Firstly, He told the students about his childhood.                                            
+• Sir also shared that, When he was admitted in school his name was Pal.Later, he was named as harpal by his teacher.
+• He believes in doing hardwork.                              
+• He listed down various teachings of guru nanak dev ji and their relationship with bhai mardana ji.
+• Bebe Nanaki ji and Raye bular's beleive in Guru Nanak Dev ji.                               
+• He said whenever he travelled by train or any other public transport, people get fascinated by his words of wisdom and they get so attached to him that they even beared his expenses.                           
+• He says that their professor Narender Kalia in the time of their masters degree was a scholar in English and Urdu.                   
+• He talked about the udasiyas of Guru nanak dev ji and its impact.                     
+• He also talk about Gyan parkash vivek where he shared about the well in the village whose water was salty due to curse.         
+• He said that it is wrong to say that there are 10 gurus whereas Guru Nanak dev ji gave us 10 opportunities to know him.     
+• He also shared a story where Bhai Mardana ji was asked to buy rabaab from Farinda after taking money from bebe Nanaki Ji.     
 
 
 
@@ -311,7 +322,31 @@ They told us about theory subjects and SGP system.
 | ----- | ------------- | ------------ |
 | 18 July 2024 ||About NCC (National Cadiet Corps) |
 
+Firstly Dr. Harvinder Singh made us knew why we should opt foor NCC
 
+He described about co-curricular and extra curricular activities
+
+He listed down the physical as well as mental benefits of NCC
+
+He listed down SAHARA scholarship and its benefits to NCC cadets
+
+TOPIC
+
+NCC and NSS
+
+Many other govt. schemes and the cost bearing by govt. for any camp, uniform, drills etc.
+
+were also discussed briefly
+
+He also confronted those students who did not qualify the NDA exam and said that NCC
+
+provides them a second chance to make their dream of becoming an officer in the indian
+
+armed forces a reality He also explained all the life skills provided by World Health Organisation (WHO) like self
+
+awareness, maintaining relationships etc
+
+• He said that besides position in armed forces, NCC also provides these life skills
 
 
 

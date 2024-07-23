@@ -364,7 +364,7 @@ They told us about theory subjects and SGP system.
 
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
-| 18 July 2024 |Er.Kanwardeep Kalra | Campus to corporate |
+| 19 July 2024 |Er.Kanwardeep Kalra | Campus to corporate |
 
 # Building a Future Beyond the Classroom.          
 • <mark> Transition </mark> : Campus to Corporate.            
@@ -408,7 +408,7 @@ They told us about theory subjects and SGP system.
 
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
-| 20 July 2024 |Respected Jaswinder Singh|About Mathematics and Science |
+| 19 July 2024 |Respected Jaswinder Singh|About Mathematics and Science |
 
 # Starting with the meaning of Sat sri Akaal.      
 
@@ -426,4 +426,68 @@ They told us about theory subjects and SGP system.
 • From Sir's lecture we can infer that it is better to understand the concepts of Science and mathematics rather than craming theory and should apply them in life.
  
  <mark> DAY-8 </mark>
-   
+ | Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 22 July 2024 |Dr. S.B.Singh | |  
+
+He made us take out pin pages from our notebooks and told us to write our name on it, Our parent's names, Their mobile numbers, Our mobile numbers and some of our academic details as well
+
+Then he asked us questions regarding our hobbies, our aim in life, things we are doing to fulfill that aim, the flaws we find in the education system on GNDEC and what is our suggestion to resolve the issues if there are any
+
+Then he told us that behind writing all this stuff his basic motive was to remind us of ourselves and our ambition in life
+
+Then he told us about a poison which has been embedded into student's minds which is known as package
+
+He told us that besides running for packages after your graduation, Be your own package
+
+Inculcate such level of excellence and skills in yourself that you don't have to run for packages rather companies approach you and ask for the package of your choice
+
+He had his own way of enlightening us through his amazing life experience
+
+He also criticised the use of google by people for every problem in their daily lives rather he said that we need to start trusting on people
+
+• He told us to read books like The Igniited Minds by Dr. APJ Abdul Kalam to make our lives at ease
+
+He gave us the slogan of No Tesnsion, Full Attention
+
+| Date | Resource person | Description |
+| ----- | ------------- | ------------ |
+| 22 July 2024 |Dr. Pushpinder Singh| |
+
+Then came Dr. Pushpinder Singh and gave us the following share of his knowledge
+
+He firstly asked us question that said, "How many of you retain the lecture by only listening?", "How many of you retain the lecture by making notes?", "How many of you retain the lecture by relating the book knowledge to real life?"
+
+His basic aim in asking these questions was that he wanted to know the studying pattern of students
+
+Then he taught us the meaning of surface learning and deep learning
+
+When we read a book only and just accept the facts provided in the lessons without checking them is known as surface learning
+
+When we read a book and analyse the facts provided in any lesson by comparing them with real life things is known as deep learning
+
+Another excellent way of learning things is by making them explain to your friend. This is the most efficient way of putting something u learnt into your subconscious mind
+
+Mental health issues do arise in professional colleges
+
+• Learn everything because it helps in your life. Whatever you are made to study in the
+
+college's first year, do study it thoroughly because you don't know at which point in your
+
+life it would help you out
+
+Then he gave us a tremendous example of living with gratitude by making us show a fact
+
+that the trees like bamboo whenever a storm comes bend themselves and survive the
+
+storm. While trees like peepal which don't bend themselves get blowed away in the
+
+storm. This showed that we should learn how to have a positive attitude to survive in
+
+storm like situations in life
+
+
+
+
+
+

@@ -343,14 +343,24 @@ They told us about theory subjects and SGP system.
 | ----- | ------------- | ------------ |
 | 18 July 2024 |Er. Jasvir singh Grewal|About NSS (National Service Scheme) |
 
+# Er. Jasvir Singh Grewal told us about the National Service Scheme (NSS) • 
+
+• NSS provides an opportunity to the students to become a better person in their life       
+• He talked about the true meaning of engineering.      
+• He talked abot the stem cells as a cure to blood cancer patients.     
+• He laid stress on qualitative plantation of tress rather than qualitative.      
+• Planting more and more tress help in improving the Air Quality Index.          
+• He told everyone to practice Reduce, Reuse, Recycle.
+• He mentioned how participating in NSS activities and getting certificates improves our portfolio for future resumes.       
+• He talked abot the stem cells as a cure to blood cancer patients.        
+• At End, he introduced the concept of reverse engineering.        
 
 
 
 
 
 
-
-
+ # <mark> DAY-7 </mark>
 
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
@@ -394,15 +404,26 @@ They told us about theory subjects and SGP system.
 
 
 
-# <mark> DAY-7 </mark>
+
 
 | Date | Resource person | Description |
 | ----- | ------------- | ------------ |
 | 20 July 2024 |Respected Jaswinder Singh|About Mathematics and Science |
 
-# Starting with the meaning of Sat sri Akaal.
+# Starting with the meaning of Sat sri Akaal.      
 
- 
- 
 
+
+• He gave a code of 86420 for memorizing the table of 8 and also of 118 by a different trick.      
+• He cleared the location of the 206 bones present in various parts of the human skeleton by giving three numbers 26,27,28.      
+• He taught us about different basics of Science like surface tension etc.       
+• He believed we all know smart tricks, we just have to observe and apply them in real life.        
+• He explained the concept of conductance with a rain alarm very well.      
+• He also compared balance in life with mathematics            
+• He said that we all have seen these experiments in our textbooks but never tried them in real life.    
+• He also explained the concept of electrostatics using rubber balloons.     
+• Trying these experiments practically gives the clearance to the concepts.    
+• From Sir's lecture we can infer that it is better to understand the concepts of Science and mathematics rather than craming theory and should apply them in life.
+ 
+ <mark> DAY-8 </mark>
    
